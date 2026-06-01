@@ -1,14 +1,14 @@
 # aboutme
 ___
-❔️
-i am a multishipper + crossshipper!! :D
-my most active fandoms are roblox args, NO MORE TIME, call of duty, i have no mouth and i must scream, poppy playtime, etc.
-I LOVE ALL MY FRIENDS!!!! YOU GUYS KNOW WHO YOU ARE! S, V, A, T, ETC!!
-___
 📼
 heya there !! you probably know what to call me by now.
 as you can see, i currently go by virus/malware/exe/bug pronouns!! i am digigender and fictigender. i am a pan-aroace and orchidromantic person
 i LOVE roblox args, if you have a roblox arg recommendation, feel free to sign my ata and tell me about it!
+___
+❔️
+i am a multishipper + crossshipper!! :D
+my most active fandoms are roblox args, NO MORE TIME, call of duty, i have no mouth and i must scream, poppy playtime, etc.
+I LOVE ALL MY FRIENDS!!!! YOU GUYS KNOW WHO YOU ARE! S, V, A, T, ETC!!
 ___
 💿
 if youre visiting my git because you met me on pt, know that im free2int at all times unless i put dni/dniuc/dniuf/dniup/dniuid etc in my name. i also LOVVVEEEE cuds so don't be scared to cuddle with me! i am open to c+h >_<
