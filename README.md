@@ -15,6 +15,7 @@ $\text{\color{#C489F0} check prns page for others!!}$
 ---
 
 ![Project Logo](55bafa6bcae2ac590bfb16270da19d83.jpg)
+> me and my twin/sis soren!! <3 /pos/plat!
 
 # stuff!!
 📼
