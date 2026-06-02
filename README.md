@@ -18,8 +18,8 @@ $\text{\color{#C489F0} check prns page for others!!}$
 📼
 $\text{\color{#F1F28A} im active in these fandoms:}$
 $\text{\color{#EDD35F} roblox args community, call of duty, NEED MORE HEAT, NO MORE TIME, ihnmaims, etc!}$
-$\text{\color{#98E890} my fictkins are jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .
-$\text{\color{#A090E8} I am makarov (codmw/rb+og) yumeshipper <33 !!}$
+$\text{\color{#98E890} my fictkins are jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .}$
+$\text{\color{#A090E8} I am a makarov (codmw/rb+og) yumeshipper <33 !!}$
 > FICTKIN DOUBLES FEEL FREE TO INT! >_<
 > SHARING YUMESHIPPER! >_<
 
