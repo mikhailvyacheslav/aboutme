@@ -4,7 +4,9 @@
 
 ---
 
-$\text{\color#AD7CD9} i go jacob/mateo/bell or my other names which is very long. i also appreciate nicknames! no offensive things pls. my current preferred pronouns are virus/malware/exe/bug, check prns page for others}$
+# intro.
+💿
+$\text{\color{#AD7CD9} i go jacob/mateo/bell or my other names which is a very long list. i also appreciate nicknames! no offensive things pls. my current preferred pronouns are virus/malware/exe/bug, check prns page for others}$
 
 ---
 
