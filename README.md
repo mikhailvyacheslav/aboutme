@@ -18,7 +18,9 @@ $\text{\color{#C489F0} check prns page for others!!}$
 📼
 $\text{\color{#F1F28A} im active in these fandoms:}$
 $\text{\color{#EDD35F} roblox args community, call of duty, NEED MORE HEAT, NO MORE TIME, ihnmaims, etc!}$
-$\text{\color{#98E890} my fictkins are jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeetplayz), matt (itzskeetplayz), galaxy (itzskeetplayz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .}$
+$\text{\color{#98E890} my fictkins are jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT),
+$\text{\color{#98E890} noob (NMT), cole (NMT), skeet (itzskeetplayz), matt (itzskeetplayz),}$
+$\text{\color{#98E890} galaxy (itzskeetplayz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .}$
 $\text{\color{#A090E8} I am a makarov (codmw/rb+og) yumeshipper <33 !!}$
 > FICTKIN DOUBLES FEEL FREE TO INT! >_<
 > SHARING YUMESHIPPER!
@@ -35,7 +37,8 @@ $\text{\color{#79A6E0} if you're asking me if I'm open to rps, i am unless I'm n
 # statuses!!
 🎁
 $\text{\color{#F9C8FA} int freely unless i put dni/dniuc/dniup/etc in my name!}$
-$\text{\color{#F8A5FA} c+h freely with me, it's HEAVILY encouraged!! feel free to c+h any time !! i am an absolute c+h lover ok? I'M ALSO FINE WITH KISSES!!}$
+$\text{\color{#F8A5FA} c+h freely with me, it's HEAVILY encouraged!! feel free to c+h any time !!}$
+$\text{\color{#F8A5FA} i am an absolute c+h lover ok? I'M ALSO FINE WITH KISSES!!}$
 
 ---
 
