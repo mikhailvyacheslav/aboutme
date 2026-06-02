@@ -6,7 +6,7 @@
 
 # intro.
 💿
-$\text{\color{#AD7CD9} i go jacob/mateo/bell or my other names which is a very long list.}$
+$\text{\color{#AD7CD9} i go by jacob/mateo/bell or my other names which is a very long list.}$
 $\text{\color{#AD7CD9} i also appreciate nicknames! no offensive things though, please.}$
 $\text{\color{#AD7CD9} my current preferred pronouns are}$
 $\text{\color{#5A258F} virus/malware/exe/bug!}$
