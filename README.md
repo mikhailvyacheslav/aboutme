@@ -6,17 +6,17 @@
 
 # intro!!
 💿
-**name**: jacob/mateo/bell/etc (long list)..
-**nicknames**: any! no offensive things pls
-**pronouns**: virus/malware/exe/bug (check prns page 4 others)
+- **name**: $\jacob/mateo/bell/etc (long list)..{\colour{#AD7CD9}
+- **nicknames**: any! no offensive things pls
+- **pronouns**: virus/malware/exe/bug (check prns page 4 others)
 
 ---
 
 # stuff!!
 📼
-**active fandoms**: roblox args community, call of duty, NEED MORE HEAT, NO MORE TIME, ihnmaims
-**fictkins**: jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .
-**yumeships**: makarov (codmw/rb+og)
+- **active fandoms**: roblox args community, call of duty, NEED MORE HEAT, NO MORE TIME, ihnmaims
+- **fictkins**: jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .
+- **yumeships**: makarov (codmw/rb+og)
 > FICTKIN DOUBLES FEEL FREE TO INT.
 > SHARING YUMESHIPPER.
 
@@ -24,15 +24,16 @@
 
 # pony town :-0
 💫
-**usual spots**: I mostly like to chill near the roblox fandoms spots. likely hiding in trees, or not
-**free to roleplay?**: sure 👀 
+- **usual spots**: I mostly like to chill near the roblox fandoms spots. likely hiding in trees, or not
+- **free to roleplay?**: sure 👀 
 
 ---
 
 # statuses!!
 🎁
-**INT**: freely unless i put dni/dniuc/dniup/etc in my name
-**C+H**: freely + HEAVILY encouraged!! feel free to c+h any time !! absolute c+h lover ok?
+- **int**: freely unless i put dni/dniuc/dniup/etc in my name
+- **c+h**: freely + HEAVILY encouraged!! feel free to c+h any time !! absolute c+h lover ok?
+- **kisses**: SUREE
 
 ---
 
