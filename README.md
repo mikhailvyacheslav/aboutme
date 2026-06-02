@@ -14,6 +14,8 @@ $\text{\color{#C489F0} check prns page for others!!}$
 
 ---
 
+![Project Logo](55bafa6bcae2ac590bfb16270da19d83.jpg)
+
 # stuff!!
 📼
 $\text{\color{#F1F28A} im active in these fandoms:}$
