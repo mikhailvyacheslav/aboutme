@@ -21,7 +21,7 @@ $\text{\color{#EDD35F} roblox args community, call of duty, NEED MORE HEAT, NO M
 $\text{\color{#98E890} my fictkins are jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .}$
 $\text{\color{#A090E8} I am a makarov (codmw/rb+og) yumeshipper <33 !!}$
 > FICTKIN DOUBLES FEEL FREE TO INT! >_<
-> SHARING YUMESHIPPER! >_<
+> SHARING YUMESHIPPER!
 
 ---
 
@@ -35,7 +35,7 @@ $\text{\color{#79A6E0} if you're asking me if I'm open to rps, i am unless I'm n
 # statuses!!
 🎁
 $\text{\color{#F9C8FA} int freely unless i put dni/dniuc/dniup/etc in my name!}$
-$\text{\color{#F8A5FA} c+h freely with me, it's HEAVILY encouraged!! feel free to c+h any time !! i am absolute c+h lover ok? I'M ALSO FINE WITH KISSES!!}$
+$\text{\color{#F8A5FA} c+h freely with me, it's HEAVILY encouraged!! feel free to c+h any time !! i am an absolute c+h lover ok? I'M ALSO FINE WITH KISSES!!}$
 
 ---
 
