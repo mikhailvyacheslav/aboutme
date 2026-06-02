@@ -48,3 +48,6 @@ $\text{\color{#F8A5FA} i am an absolute c+h lover ok? I'M ALSO FINE WITH KISSES!
 # notes!!
 🧣
 $\text{\color{#FAD7A5} go sign my strawp/ata twin! nothing else.. might update this if I'm not satisfied after suffering}$
+
+![Project Logo](729d662ae043ee642cef24157659bd07.jpg)
+> me and soren again!!
