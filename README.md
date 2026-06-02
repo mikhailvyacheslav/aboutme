@@ -1,18 +1,42 @@
-# aboutme
-___
-📼
-heya there !! you probably know what to call me by now.
-as you can see, i currently go by virus/malware/exe/bug pronouns!! i am digigender and fictigender. i am a pan-aroace and orchidromantic person
-i LOVE roblox args, if you have a roblox arg recommendation, feel free to sign my ata and tell me about it!
-___
-❔️
-i am a multishipper + crossshipper!! :D
-my most active fandoms are roblox args, NO MORE TIME, call of duty, i have no mouth and i must scream, poppy playtime, etc.
-I LOVE ALL MY FRIENDS!!!! YOU GUYS KNOW WHO YOU ARE! S, V, A, T, ETC!!
-___
+# ✦ about me ✦
+
+(*｀▽´*)
+
+---
+
+# intro!!
 💿
-if youre visiting my git because you met me on pt, know that im free2int at all times unless i put dni/dniuc/dniuf/dniup/dniuid etc in my name. i also LOVVVEEEE cuds so don't be scared to cuddle with me! i am open to c+h >_<
-i only ever put the busy status when im upset. i usually use idle, even when im afk.
-i will likely sit in one place for a long time, especially when afk or when with friends!
-i think thats all.. if you have any questions, ask on my strawpage or ata! (preferably ata)
-will update this if i care enough.
+**name**: jacob/mateo/bell/etc (long list)..
+**nicknames**: any! no offensive things pls
+**pronouns**: virus/malware/exe/bug (check prns page 4 others)
+
+---
+
+# stuff!!
+📼
+**active fandoms**: roblox args community, call of duty, NEED MORE HEAT, NO MORE TIME, ihnmaims
+**fictkins**: jacob (cdarchive), whole ddt33 cast (ddt33), player (NMH), odds (NMT), noob (NMT), cole (NMT), skeet (itzskeet_playz), matt (itzskeet_playz), galaxy (itzskeet_playz), bell (codbocw), case (codbo6), aubree (ihafl), fern (ihafl), etc . .
+**yumeships**: makarov (codmw/rb+og)
+> FICTKIN DOUBLES FEEL FREE TO INT.
+> SHARING YUMESHIPPER.
+
+---
+
+# pony town :-0
+💫
+**usual spots**: I mostly like to chill near the roblox fandoms spots. likely hiding in trees, or not
+**free to roleplay?**: sure 👀 
+
+---
+
+# statuses!!
+🎁
+**INT**: freely unless i put dni/dniuc/dniup/etc in my name
+**C+H**: freely + HEAVILY encouraged!! feel free to c+h any time !! absolute c+h lover ok?
+
+---
+
+# notes!!
+🧣
+- go sign my strawp/ata twin!
+- nothing else..
