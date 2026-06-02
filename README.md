@@ -45,7 +45,7 @@ $\text{\color{#F8A5FA} i am an absolute c+h lover ok? I'M ALSO FINE WITH KISSES!
 
 ---
 
-![Project Logo](images - 2026-05-30T115350.812.jpeg)
+![Project Logo](2026-05-30T115350.812.jpeg)
 
 # notes!!
 🧣
