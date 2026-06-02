@@ -2,7 +2,7 @@
 
 (*｀▽´*)
 
----
+![Project Logo](6deb8a3ba88937495072c53909941476.jpg)<image src="6deb8a3ba88937495072c53909941476.jpg"alt="Project Logo" width="300">
 
 # intro.
 💿
