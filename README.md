@@ -6,7 +6,7 @@
 
 # intro!!
 💿
-- **name**: $\jacob/mateo/bell/etc (long list)..{\color{#AD7CD9}$\
+- **name**: $\text{\color#AD7CD9}jacob/mateo/bell/etc (long list)..}$
 - **nicknames**: any! no offensive things pls
 - **pronouns**: virus/malware/exe/bug (check prns page 4 others)
 
